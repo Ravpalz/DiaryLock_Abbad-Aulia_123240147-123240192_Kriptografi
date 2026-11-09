@@ -1,0 +1,1 @@
+# DiaryLock_Abbad-Aulia_123240147-123240192_Kriptografi
